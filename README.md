@@ -1,0 +1,1 @@
+# coreldraw-editor-unlocked-edition
